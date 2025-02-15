@@ -1,14 +1,14 @@
 okk28 最新地址发布
 
-##永 久 域 名 Http://www.okk28.com
+##永 久 域 名 Http://www.okk28.com/
 
 ⭐️ 👉 访问地址 ：http://www.okk28.com/
 
 ⭐️ 👉 访问地址 ：http://www.okk28.net/
 
-⭐️ 👉 访问地址 ：http://okjnd.xyz/
+⭐️ 👉 访问地址 ：http://okjnd.com/
 
-⭐️ 👉 备用导航 ：Http://okjnd.cc
+⭐️ 👉 备用导航 ：Http://okjnd.cc/
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
